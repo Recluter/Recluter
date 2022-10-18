@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Recluter
-- 👀 I’m interested in  colaborar en la busqueda laboral IT
-- 🌱 I’m currently learning a onectar con diferentes prfiles  
+- 👀 I’m interestea la busqueda laboral de  profesionales IT 
+- 🌱 I’m currently lear haciendo   
 - 💞️ I’m looking to collaborate on  el creciemiento profesional
 - 📫 How to reach me ,  por este medio.
 
